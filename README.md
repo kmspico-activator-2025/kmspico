@@ -8,7 +8,7 @@ kmspico windows 10
 
 kmspico activator
 
-kmspico windows 10 activator
+<a href="https://1kmspico.com">kmspico windows 10 activator</a>
 
 kmspico office activator
 
